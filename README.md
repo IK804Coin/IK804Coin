@@ -33,8 +33,9 @@ Our smart contract is securely deployed and **verified** on **BscScan**:
 ---
 
 ### 🌐 **Stay Connected**
-💬 [Telegram](https://t.me/ImranKhanCoin804)  
-📢 [Twitter/X](https://x.com/IK_804_Coin/)  
-🌍 [Website](https://ik804coin.com/)  
+ [Telegram](https://t.me/ImranKhanCoin804)  
+ [Twitter/X](https://x.com/IK_804_Coin/)  
+ [Website](https://ik804coin.com/)  
+ [LinkedIn](https://linkedin.com/company/ik804-coin)
 
 🚀 Join us in shaping the future of **$IK804**!  
